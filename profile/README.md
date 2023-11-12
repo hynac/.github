@@ -17,4 +17,4 @@ For business inquiries, collaborations, or general questions, feel free to reach
 
 ### Stay Stylish, Stay Unique! 💃🕺
 
-> Feel free to customize the content based on the specific projects and details relevant to Hyna.lk. If you have any specific requirements or need further customization, let me know!
+> Feel free to customize the content based on the specific projects and details relevant to Hyna.lk. If you have any specific requirements or need further customization, let us know!
